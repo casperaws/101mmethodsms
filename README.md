@@ -1,4 +1,4 @@
 # 101m Method's
 
 Kurulum Icın 
-Discord: # discord.gg/101m
+Discord: discord.gg/101m
